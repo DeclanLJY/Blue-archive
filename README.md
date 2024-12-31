@@ -1,2 +1,0 @@
-# Blue-archive
-live wallapaper
