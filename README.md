@@ -1,2 +1,2 @@
 # Blue-archive
-HD wallapaper
+live wallapaper
